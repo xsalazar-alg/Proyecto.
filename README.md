@@ -10,11 +10,8 @@ Projecte del "Set i Mig". [1r DAW]
 
 
 # —— 𝐈𝐍𝐓𝐄𝐆𝐑𝐀𝐍𝐓𝐒 𝐃𝐄𝐋 𝐆𝐑𝐔𝐏.
-[🌷] Claudia Moyano Herrerías.
-• Correu: cmoyanoherrerias.cf@iesesteveterradas.cat 
+[🌷] Claudia Moyano Herrerías. | Correu: cmoyanoherrerias.cf@iesesteveterradas.cat 
  
-[🌸] Pol Cortés García.
-• Correu: pcortesgarcia.cf@iesesteveterradas.cat
+[🌸] Pol Cortés García. | Correu: pcortesgarcia.cf@iesesteveterradas.cat
   
-[🍄] Shayel Salazar Vivanco.
-• Correu: xsalazarvivanco.cf@iesesteveterradas.cat
+[🍄] Shayel Salazar Vivanco. | Correu: xsalazarvivanco.cf@iesesteveterradas.cat
